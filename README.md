@@ -1,2 +1,2 @@
 # blahblahblah !!!!!
-this repositiories only make for the badge don't watch it..
+this repositiories only make for the badge don't watch it...
